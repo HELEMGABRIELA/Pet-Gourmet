@@ -1,2 +1,0 @@
-# Pet-Gourmet
-Croquetas artesanales
